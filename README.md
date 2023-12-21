@@ -12,7 +12,7 @@ https://clothy-amazing-shoping-website.netlify.app/
 - Suraj Yadav (My Linkedin profile:- https://www.linkedin.com/in/suraj-yadav-003626236/)
 - Vikas Suresh (My Linkedin profile :- )
 - Deepak Mahesh Yadav (My Linkedin profile:- )
-- Ankit Choudhary (My Linkedin profile:- )
+- Ankit Choudhary (My Linkedin profile:- https://www.linkedin.com/in/ankit-chaudhary-b58a9b271/)
 - Saurabh Pandey (My Linkedin profile:- )
 <br/>
 
